@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @riikolilover
-- 👀 I’m interested in LOVE
-- 🌱 I’m currently learning how to be a better Man
-- 💞️ I’m looking to collaborate on FINDING LOVE
+- 👀 I’m interested in NEW
+- 🌱 I’m currently learning how to be a better ME
+- 💞️ I’m looking to collaborate on NEW
 - 📫 How to reach me riikolilover@gmail.com, @RiikoL (Coinbase)
 
 <!---
